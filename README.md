@@ -2,4 +2,4 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning Python
 - 📫 How to reach me per e-mail: htlmxs@gmail.com
-- 😄 Pronouns: he/him
+- 😄 Pronouns: they/them
